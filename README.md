@@ -1,2 +1,0 @@
-# DreamTeamCD
-Spiritual Gifts Test
